@@ -1,2 +1,2 @@
 # programadora
- graduada em analista de sistemas e cientista de dados
+ acadêmica em ADS e Cientista de Dados.
